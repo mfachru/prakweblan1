@@ -1,1 +1,1 @@
-Waalaikumsalam
+ini indek
